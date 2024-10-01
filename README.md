@@ -5,5 +5,8 @@ Galáxias
 
 ![image](https://github.com/user-attachments/assets/8ec4c2a2-c818-4b21-a9d5-cda295042b62)
 
-![image](https://github.com/user-attachments/assets/c7fe6030-f91c-49f3-b838-dc763faedf93)
-![image](https://github.com/user-attachments/assets/63fbf5ab-32e5-4828-b057-1eadda1178e6)
+![image](https://github.com/user-attachments/assets/903ea706-3f75-4bac-8fa0-12be0853cbb0)
+
+...
+
+![image](https://github.com/user-attachments/assets/483fb73a-ecad-4963-94c9-914af7fe1cd1)
